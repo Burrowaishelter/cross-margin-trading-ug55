@@ -1,4 +1,4 @@
-# 
+# AI-powered Trading Bot for cross-margin trading bot | arbitrage-scanning & cross-margin is the best cross-margin trading bot, featuring arbitrage-scanning and cross-margin. Smart,
 
 
 
